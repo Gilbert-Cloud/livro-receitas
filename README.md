@@ -8,4 +8,6 @@
 
 1. STROGONOFF DE FRANGO
 
+2. Feijão amigo mineiro
+
     
